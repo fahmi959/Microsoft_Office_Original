@@ -1,3 +1,5 @@
+https://www.bagitekno.net/office/cara-aktivasi-office-2021.html
+
 Setelah anda menginstall Microsoft Office 2021 di Laptop Windows yang digunakan, maka anda bisa menggunakannya dalam mode trial selama beberapa hari. Setelah itu anda harus membuatnya jadi full version dengan cara aktivasi Office 2021 yang berisi Word, Excel, PPT, dan lainnya.
 
 Jika masa trial sudah berakhir dan anda belum juga melakukan aktivasi, maka aplikasi Office anda akan Unlicensed Product atau Product Activation Failed sehingga tidak bisa digunakan untuk mengetik ataupun edit file dokumen. Jadi, agar aplikasi Word, Excel, dan PPT bisa normal lagi, anda harus melakukan aktivasi.
